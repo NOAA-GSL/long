@@ -6,7 +6,7 @@ PLEASE JOIN US FOR THE ***GSL Lunar New Year Party*** on ***9 February 2024 11:3
 
 [Sign up to bring something for a potluck]()
 
-[Tentaive Party Agenda](https://docs.google.com/document/d/1pDa07tzxj-asaPtt83nAf40UWPmyHzQjqZEVOIivbB4/edit)
+[Tentative Party Agenda](https://docs.google.com/document/d/1pDa07tzxj-asaPtt83nAf40UWPmyHzQjqZEVOIivbB4/edit)
    
 [Optional Reading Material before the party](https://docs.google.com/presentation/d/1FFU5KUS43Icl3BJNRjeHd9m27MCh94lidkhIoNl-8kA/edit#slide=id.g2aec714220d_0_109)
 

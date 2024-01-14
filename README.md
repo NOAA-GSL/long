@@ -10,6 +10,6 @@ Lunar 2024 is the year of 龙 (pronounced as Long), starting from February 10th,
    
 [Optional Reading Material before the party](https://docs.google.com/presentation/d/1FFU5KUS43Icl3BJNRjeHd9m27MCh94lidkhIoNl-8kA/)
 
-Hosted by: GSL DEIA council, CIRES DEI program,    
+Hosted by: GSL DEIA council, CIRES & CIRA DEI programs,    
 Shan Sun, Guoqing Ge, Ming Hu, Kate Zhang,    
 Man Zhang, Suneng Zhuo, Chunhua Zhou, Ruifang Li   
